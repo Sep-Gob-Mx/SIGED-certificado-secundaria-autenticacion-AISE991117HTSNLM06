@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-AISE991117HTSNLM06
+AISE991117HTSNLM06
